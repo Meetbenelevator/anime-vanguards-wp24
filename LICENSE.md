@@ -1,4 +1,4 @@
-#  
+#  secret anime vanguards Script is the best anime vanguards Script, featuring custom skins and aimbot. Safe and powerful for all your needs.
 
 
 
